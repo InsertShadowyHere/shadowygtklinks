@@ -1,2 +1,9 @@
 # shadowygtklinks
-https://url9129.fandom.com/ls/click?upn=3e6yCJLh4-2FTNhOAzgllhgFbZ29MdQBsWsM3dC0oxz-2Baj214RquRvSSI6-2BcedoJjo5GyTwN4zL-2F1sDIBEBUql0E977hgsS-2Bivkdnw8-2F-2BvzX6hQaG-2BJ2bMtyW2mdhhkA-2FO2aDQ_-2BBsZ8wEm748-2FuE1Xuwp4akacfox1Hjw9FcvhUbl5gygSYOZsKQlpMEam8a9tYiNF8DPu77xhkYCYVfC-2BAggkucGDRSmQUqxU1ULMummWFR0-2BgkaGAOr-2BmPoSJ5FY-2FElj7gyKyX5Yl7znQd-2BxA8ECm-2FEaNsyKyVYbBmvIwJHrWdnWSu2Ho91PFP1ytzGU11AYDgjTMxf5Xc-2BciT0DkivnkCUFVPd9Y5C5RZ2H2BWlhodTS4m68uWJIj4sIWHRCjVjkls-2F7POPTRs-2BDTl6sLkn1o5l2MUOaWKDdQ3EdxdXHGX4fBKmK-2FwFZWTioNdeVqXZwfDvwupUL7l-2FJbSE71T8TA-3D-3D
+youtube.com
+google.com
+slopegame.online
+slope-game.fandom.com
+reddit.com
+discord.com
+torn.com
+kingdomofloathing.com

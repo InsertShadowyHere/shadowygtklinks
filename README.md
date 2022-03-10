@@ -8,4 +8,6 @@ www.discord.com
 www.torn.com
 www.kingdomofloathing.com
 https://bonk.io/
-https://rawcdn.githack.com/scheng123321/tmm-html5-cdn1/master/slope/index.html
+https://hangouts.google.com
+https://hypixel-skyblock.fandom.com/wiki/Hypixel_SkyBlock_Wiki
+

@@ -10,4 +10,3 @@ www.kingdomofloathing.com
 https://bonk.io/
 https://hangouts.google.com
 https://hypixel-skyblock.fandom.com/wiki/Hypixel_SkyBlock_Wiki
-https://help.replika.com/hc/en-us/categories/115000147111-Login-Account

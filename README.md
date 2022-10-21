@@ -9,5 +9,3 @@ www.kingdomofloathing.com
 https://bonk.io/
 https://hangouts.google.com
 https://hypixel-skyblock.fandom.com/wiki/Hypixel_SkyBlock_Wiki
-http://centre.sublimemill.net 
-https://discord.com/invite/K7ZPTtz7SJ

@@ -10,3 +10,7 @@ https://bonk.io/
 https://hangouts.google.com
 https://hypixel-skyblock.fandom.com/wiki/Hypixel_SkyBlock_Wiki
 https://lastmagestanding.com
+https://discord.gg/blooket
+https://discord.gg
+www.discord.gg
+www.discord.gg/blooket

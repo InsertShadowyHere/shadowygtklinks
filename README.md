@@ -13,4 +13,4 @@ https://lastmagestanding.com
 https://discord.gg/blooket
 https://discord.gg
 www.discord.gg
-www.discord.gg/blooket
+www.discord.gg/discord-testers

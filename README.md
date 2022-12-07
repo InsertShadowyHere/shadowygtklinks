@@ -14,3 +14,4 @@ https://discord.gg/blooket
 https://discord.gg
 www.discord.gg
 www.discord.gg/discord-testers
+https://top.gg/bot/555955826880413696/vote

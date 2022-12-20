@@ -16,3 +16,4 @@ www.discord.gg
 www.discord.gg/discord-testers
 https://top.gg/bot/555955826880413696/vote
 https://zombsroyale.io/
+https://fancyfishgames.com/Aground/CreateAccount.php?activate=5bc771e756396af0c4b8dd1836c5b41e&uid=52767

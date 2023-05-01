@@ -10,11 +10,7 @@ https://bonk.io/
 https://hangouts.google.com
 https://hypixel-skyblock.fandom.com/wiki/Hypixel_SkyBlock_Wiki
 https://lastmagestanding.com
-https://discord.gg/blooket
 https://discord.gg
-www.discord.gg
-www.discord.gg/discord-testers
+https://discordapp.com
 https://top.gg/bot/555955826880413696/vote
 https://zombsroyale.io/
-https://fancyfishgames.com/Aground/CreateAccount.php?activate=5bc771e756396af0c4b8dd1836c5b41e&uid=52767
-https://click.discord.com/ls/click?upn=qDOo8cnwIoKzt0aLL1cBeJWc43CAiLlKYSQGUErhKV7fF2lroxEuEaMS14HcVQRW8v-2B9DbraS-2BA4zjstfPreCpn53R6BFVDJPyAu2QrhtMYa1XqczTXqddTc0z514jvzUrJCGkVZGriLsBal6xCi5l52iEVsR3NFKQxzqDv1g61jQ07oJddDUndpCDdyFhbEjn9D_TVzRKlxn5POn3qvAVdf5RU-2FR8dyT4RQj9vCZhTKT3x3ey4sfbMwPn0HUVVOlyjurFnW5K-2Fe4F27Za8A7iBPactVwhj0UTAEkdGuUiC1lfR4RMo-2BiOmlCHJ-2FIJ6NnQyxNscUweQYxcEwDPr5wppSHm1ACb6sixZtC3NaCpN1jxl29MUqdd0fTuO4cdR5udu6Z3l-2B2FviJRRSlcsthojAFTxwfw-2FxUVO19qX4qwtbWbJppCzSvfq7rGFIoM5QRXHAR0v-2BwkccFbWygIUVbk0aVMQ-3D-3D

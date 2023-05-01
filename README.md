@@ -14,3 +14,4 @@ https://discord.gg
 https://discordapp.com
 https://top.gg/bot/555955826880413696/vote
 https://zombsroyale.io/
+https://daily3.ospa.fi

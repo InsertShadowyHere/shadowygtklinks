@@ -17,3 +17,4 @@ https://zombsroyale.io/
 https://daily3.ospa.fi
 https://scratch.mit.edu/projects/775510931/
 https://chat.openai.com/
+https://www.youtube.com/embed/8N_Rex8m-3Q?autoplay=1&auto_play=1

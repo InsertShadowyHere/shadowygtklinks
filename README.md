@@ -16,3 +16,4 @@ https://top.gg/bot/555955826880413696/vote
 https://zombsroyale.io/
 https://daily3.ospa.fi
 https://scratch.mit.edu/projects/775510931/
+https://chat.openai.com/
